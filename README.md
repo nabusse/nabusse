@@ -1,8 +1,6 @@
-- 👋 Hi, I’m @nabusse
+- 👋 Hi, I’m Nahja!
 - 👀 I’m interested in marine science and diving
 - 🌱 I’m currently learning to become marine microbiologist
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I do not like rice 
 
